@@ -1,0 +1,1 @@
+# Cenario-de-teste-Advantageshopiingeonline
